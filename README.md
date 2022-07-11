@@ -1,5 +1,4 @@
-Hi, I am qawitherev a Software Engineer student from Malaysia. 
-I love coding and wish to learn a lot more from all of you. 
+average computer sceience enjoyer 
 
 
 <!---

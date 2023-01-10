@@ -1,4 +1,4 @@
-average computer sceience enjoyer 
+average computer science enjoyer 
 
 
 <!---
